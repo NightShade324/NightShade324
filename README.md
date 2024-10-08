@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil de NightShade324 😁
+## Bem-vindo(a) ao perfil de NightShade324 :blush: 
 
  <div>
    <a href="https://github.com/NightShade324">
